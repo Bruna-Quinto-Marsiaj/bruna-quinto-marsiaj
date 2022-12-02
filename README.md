@@ -6,6 +6,8 @@
 - 🤓 Me identifico com o Back-End por gostar de Raciocínio Lógico e de Regras de Negócios
 - 👯 Participei recentemente do ElasTech treinamento em Back-End Java oferecido pelo Pag Bank Pag Seguro
 - 🎯 Dentre 8 mil mulheres fui uma das 50 escolhidas pra participar do ElasTech
+- 👩‍💻 Perfil que compartilho meus estudos
+- 👷‍♀️ Under construction
 
 
 
